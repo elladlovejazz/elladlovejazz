@@ -16,7 +16,11 @@ Venmo: 搜索ella-d-love-jazz, 后四位手机号确认码0490，或者扫描下
 
 Zelle： zhuzengyi@gmail.com, 收款人Zengyi
 ![IMG_0556](https://github.com/elladlovejazz/elladlovejazz/assets/137091929/db574d58-0f66-4bb6-9f66-72c3de6ad0b6)
+
+
+
 Paypal:
+
 ![IMG_0557](https://github.com/elladlovejazz/elladlovejazz/assets/137091929/64a7d42d-15e0-468c-b31f-1e97244ad654)
 
 
