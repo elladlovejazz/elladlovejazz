@@ -10,11 +10,15 @@
 
 3. 我想打折：如果你有朋友也对音乐感兴趣，你成功带朋友一起报名活动，你和你的朋友两个人都可以打九折。2023年曾经参加过三次我的活动的小伙伴自动九折。
 
-4. 支两种支付方式：
+4. 支三种支付方式：
 
 Venmo: 搜索ella-d-love-jazz, 后四位手机号确认码0490，或者扫描下方二维码
 
 Zelle： zhuzengyi@gmail.com, 收款人Zengyi
+![IMG_0556](https://github.com/elladlovejazz/elladlovejazz/assets/137091929/db574d58-0f66-4bb6-9f66-72c3de6ad0b6)
+Paypal:
+![IMG_0557](https://github.com/elladlovejazz/elladlovejazz/assets/137091929/64a7d42d-15e0-468c-b31f-1e97244ad654)
+
 
 5. 记得加我微信确认哦~我会把你拉到微信活动参与者群，活动前一周我会在群里发详细的地址信息和注意事项的. 我的微信号:yuehongaijueshi2(乐红爱爵士2的汉语拼音）
 
