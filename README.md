@@ -42,5 +42,5 @@ Paypal:
 
 2024年我在筹备新的音乐social，独立音乐人listening party，爵士俱乐部探店和传统音乐文化宣传公益活动。近期会在群里宣布新活动，敬请期待哦😺
 
-![IMG_0558]（https://github.com/elladlovejazz/elladlovejazz/blob/56577e40209606e61c7baa83e66636c9df0b5815/IMG_0684.JPG）
+https://github.com/elladlovejazz/elladlovejazz/blob/56577e40209606e61c7baa83e66636c9df0b5815/IMG_0684.JPG
 
